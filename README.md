@@ -1,0 +1,1 @@
+I am a recent graduate in Computer Science and aspiring to be a developer. I am open to work on mobile applications and backend projects. You can find some of the interesting and most useful projects that I did during my academic learning. Feel free to send me an email on patelanuj608@gmail.com for any kind of collaboration.
